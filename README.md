@@ -32,4 +32,4 @@ Let me know if you need any updates.
 
 and finally ;)
 
-Follow [@pradyumna_d](http://twitter.com/pradyumna_d) on Twitter for the latest geek tips ![Smaller icon](http://smallerapp.com/favicon.ico "Geek Tips").
+Follow [@pradyumna_d](http://twitter.com/pradyumna_d) on Twitter for the latest geek tips.
